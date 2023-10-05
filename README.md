@@ -1,0 +1,1 @@
+# aufgabe_mini_projekt
